@@ -1,2 +1,2 @@
 # Colours-in-Japanese
-Want to learn simple colors in japanese .This is the right site
+Want to learn simple colours in Japanese?This is the right site
